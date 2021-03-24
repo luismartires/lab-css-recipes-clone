@@ -1,1 +1,1 @@
-![French Onion](https://i.imgur.com/uepu2DO.jpg)
+https://i.imgur.com/uepu2DO.jpg
